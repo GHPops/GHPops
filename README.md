@@ -5,4 +5,4 @@
 - 📫 How to reach me :
     * Linkedin: www.linkedin.com/in/paulinegouttiere/
     * Gmail: paulinegouttiere@gmail.com
-    * Portfolio: troopl.com/paulineg
+    * Portfolio: www.troopl.com/paulineg
